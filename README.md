@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @petitepax
+- 👀 I’m interested in literature, communication, education, popular culture and mental health
+- 🌱 I’m currently learning copywriting and translation
+- 💞️ I don't know exactly how to collaborate yet, but I'm open for help
+- 📫 Reach me on @petitepax on instagram, tiktok and twitter
